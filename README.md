@@ -1,1 +1,1 @@
-Мой бекенд:weekgg.nomorepartiesco.ru
+Мой бекенд: https://weekgg.nomorepartiesco.ru
